@@ -1,7 +1,7 @@
 ## 塑料植物园官方博客
 ### 目录
 - [今天是PlasticGarden官博的诞生日](#para_1)
-
+- [Caution!正式上线 | "再来一根"知名玩粉根根被官方know](#para_2)
 <span id="para_1"></span>
 ## 今天是PlasticGarden官博的诞生日
 
@@ -26,7 +26,9 @@ Please buy Caution on iTunes or QTunes.
 美颜眼镜被自己压碎。  
 荷叶在实验室楼成功拍到了根根的拢龙。
 
-## Caution!正式上线|"再来一根"知名玩粉根根被官方know
+
+<span id="para_2"></span>
+## Caution!正式上线 | "再来一根"知名玩粉根根被官方know
 
 **时间：2018/11/16**
 
@@ -34,6 +36,5 @@ Please buy Caution on iTunes or QTunes.
 
 ![Image](https://tse1-mm.cn.bing.net/th?id=OIP.sFjuD4g4jgRhhVgmJHqgfwHaEE&w=300&h=165&c=7&o=5&pid=1.7)
 
-**再来一“根”**
-
-根根HK行喜获官方认证。lovebuttonorg在ins官方账号上发表了根根亲自拍摄的照片，成功被know！
+**再来一“根”**  
+根根HK行喜获官方认证：lovebuttonorg在ins官方账号上发表了根根亲自拍摄的照片，成功被know！
