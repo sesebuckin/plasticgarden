@@ -21,7 +21,7 @@ Please buy Caution on iTunes or QTunes.
 荷叶：无事发生  
 土墉：失踪
 
-**20:12更新**
+**20:12更新**  
 逗逼上线表示他并没有失踪。  
 美颜眼镜被自己压碎。  
 荷叶在实验室楼成功拍到了根根的拢龙。
@@ -31,7 +31,9 @@ Please buy Caution on iTunes or QTunes.
 **时间：2018/11/16**
 
 玛丽嘉儿新专辑**Caution**目前已可以在Apple Music、QQ Music等平台收听！
-![Image](https://www.google.co.uk/url?sa=i&source=imgres&cd=&cad=rja&uact=8&ved=2ahUKEwjzn764pdjeAhUDnRoKHU6PDo4QjRx6BAgBEAU&url=https%3A%2F%2Fwww.ecr.co.za%2Fmusic%2Fmusic-blog%2Fmariah-carey-reveals-details-about-her-new-album%2F&psig=AOvVaw0vsBjOLmW27auR29SncIty&ust=1542436385841422)
+
+![Image](https://tse1-mm.cn.bing.net/th?id=OIP.sFjuD4g4jgRhhVgmJHqgfwHaEE&w=300&h=165&c=7&o=5&pid=1.7)
 
 **再来一“根”**
+
 根根HK行喜获官方认证。lovebuttonorg在ins官方账号上发表了根根亲自拍摄的照片，成功被know！
