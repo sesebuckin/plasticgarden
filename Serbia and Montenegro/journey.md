@@ -30,19 +30,19 @@
 ![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/hk_02.jpg)  
 ![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/hk_03.jpg)  
 没有时间去认真看海景了，我们在去机场前到剧院旁边的观景台遥望了一眼：  
-![Image]()  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/hk_08.jpg)  
 到了香港机场，check in搞完，坐上了飞往伊斯坦布尔的长达11小时的飞机。这是俺第一次坐时间这么长的飞机，还是有点紧张（我晕车），晕车贴什么的搞了一堆，不过好像并没有什么用......  
 
 >4月7日-4月8日 伊斯坦布尔机场 贝尔格莱德
 
 土耳其航空的波音777虽然飞机很大，但经济舱座位间距较小，加上前面大姐堵住了我放脚的位置，我一整夜都睡得很别扭，很真实的腰酸背痛。飞机上发了两餐，还有一堆眼罩拖鞋耳塞毛毯牙刷唇膏袜子耳机......  
-![Image]()  
-![Image]()  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/hk_bel_01.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/hk_bel_02.jpg)  
 土耳其航空起飞前的安全动画是乐高蝙蝠侠！点赞！  
-![Image]()  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/hk_bel_03.jpg)  
 中间大概在印度上空的时候，飞机连续颠簸了一个多小时，我一秒也没睡着。不过都是虚惊，正常操作正常操作......  
 等到落地就到了伊斯坦布尔新机场啦。说来也巧，4月6号新机场才刚刚正式取代了旧机场的所有业务，我们刚好赶上了新鲜的体验。新机场真是太太太太大了，可惜没有时间慢慢逛。由于前一班航班延误，我们又狂奔着赶往下一趟飞机，飞向塞尔维亚首都：贝尔格莱德 (Belgrade)。  
 下飞机的时候是当地4月8号早晨，我们到Belgrade啦：  
-![Image]()  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_01.jpg)  
 
 TBC
