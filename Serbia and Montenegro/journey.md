@@ -16,4 +16,10 @@
 >4月6日-4月7日 深圳 香港
 
 6号一个早坐上去深圳的动车，路过了桂林。我一开始特别激动：哇我看到了著名景点！后来发现，这边的山都长这样：  
-![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/guilin.jpg)
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/guilin.jpg)  
+6号晚上到了深圳，小雪的阿姨非常大方地安排了免费住宿。7号上午又请我们吃了广式早茶。虽然是第二次来深圳了，却是我第一次品尝早茶：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/shenzhen_02.jpg)  
+我们在小雪的阿姨家吃到了融合福建广东以及湖南口味的午饭：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/shenzhen_03.jpg)  
+吃完午饭，小学阿姨安排了一位大叔开车送我们到罗湖口岸，然后顺利入关进入香港。这是我第二次来香港，但确实第一次体验这里的轨道交通（据说我们坐的这趟快线是贼贵的那种呢）：  
+![Image]()
