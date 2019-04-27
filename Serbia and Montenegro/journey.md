@@ -80,20 +80,49 @@
 Church of Saint Mark  
 摘自维基：“St. Mark's Church or Church of St. Mark is a Serbian Orthodox church located in the Tašmajdan park in Belgrade, Serbia, near the Parliament of Serbia. It was built in the Serbo-Byzantine style by the Krstić brothers, completed in 1940, on the site of a previous church dating to 1835. It is one of the largest churches in the country. ”  
 这可能是此行看的最认真的一个教堂，后来的旅途中我们路过了很多教堂，但由于信仰原因并没有进去瞻仰。  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_19.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_20.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_21.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_22.jpg)  
 路过一栋看起来非常有气势的建筑（推测应该就是上面提到的the Parliament of Serbia），本着冒险精神我们直接走上了楼梯，结果在门口处被保安拦下，告诉我们这里并不是供游客参观的地方。大门口两尊雕像非常吸睛，是人背着马匹，我觉得还蛮奇特的，应该是有什么故事：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_23.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_24.jpg)  
 Trg Republika  
 共和广场正在修缮，因此没有留下它的照片。我们来到广场一角休息，顺便继续咕咕咕（欧洲的咕咕咕真的很多）：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_25.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_26.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_27.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_28.jpg)  
 Knez Mihailova Street  
 贝城最热闹的商业街，就真的很小......  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_29.jpg)  
 Kalemegdan Fortress  
 摘自维基：“Belgrade Fortress, consists of the old citadel (Upper and Lower Town) and Kalemegdan Park (Large and Little Kalemegdan) on the confluence of the River Sava and Danube, in an urban area of modern Belgrade, the capital of Serbia. Belgrade Fortress was declared a Monument of Culture of Exceptional Importance in 1979, and is protected by the Republic of Serbia.”  
 今天的主要目的地！相关历史背景我就不多扯了，我讲的没有wikipedia好（  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_30.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_36.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_40.jpg)  
 这位卖艺大哥看到我们，来了句：xijinping is good. 顿时我们仨脸上填满了尴尬又不失礼貌的微笑......  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_31.jpg)  
 古堡内部有两处修道院，其中一处是后来新修建的：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_37.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_38.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_39.jpg)  
 登到高处，很多人在这边躺着晒夕阳，眺望眼下不远处的多瑙河与萨瓦河，真是懒散又舒服啊，在这里可以充分体会到当一条咸鱼有多么幸福......  
 在这里我们能干什么？拍他喵的：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_32.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_33.jpg)  
 为了登到更高的地方看贝城全景，我们一人花了3RMB买了一处观景台门票，继续拍他喵的：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_34.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_35.jpg)  
 沙雕合影：
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_45.jpg)  
+回住处前路上随便拍的街景：  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_41.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_42.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_43.jpg)  
+![Image](https://github.com/sesebuckin/plasticgarden/blob/master/images/0406_0408/bel_44.jpg)  
 
+明天开始要自驾了！  
 
 TBC
